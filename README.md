@@ -1,1 +1,1 @@
-appledi.com
+com
